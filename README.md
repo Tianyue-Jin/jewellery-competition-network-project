@@ -1,0 +1,1 @@
+# jewellery-competition-network-project
